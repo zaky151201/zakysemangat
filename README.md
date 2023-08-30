@@ -1,0 +1,2 @@
+# zakysemangat
+Hadeuuh capek banget
